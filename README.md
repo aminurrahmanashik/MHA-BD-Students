@@ -25,7 +25,8 @@ All participants provided voluntary written informed consent. Responses were ful
 
 ## Acknowledgements
 
-The authors thank [Dr. Khandaker Anjumanara Begum](https://primen.nsmlimited.com/doctor-details/91), Associate Professor and Head of the Department of Psychiatry, Prime Medical College and Hospital, for her clinical input on the survey instrument design.
+The authors thank [Dr. Khandaker Anjumanara Begum](https://primen.nsmlimited.com/doctor-details/91), Associate Professor and Head of the Department of Psychiatry, Prime Medical College and Hospital, for her clinical input on the survey instrument design and and extend their thanks to the participating students and
+institutions whose cooperation made this study possible.
 
 ---
 
